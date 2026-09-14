@@ -19,3 +19,8 @@ That's all I need to focus on.
 10 SEP 2026
 Seconds, Minutes, Day.
 That's all I need to focus on.
+
+14 SEP 2026
+New week, lets goo!
+Seconds, Minutes, Day.
+That's all I need to focus on.
