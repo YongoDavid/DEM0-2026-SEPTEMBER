@@ -28,5 +28,8 @@ That's all I need to focus on.
 15 SEP 2026
 New day, focus on each second, minute, hours and conquer the day.
 
-16 SEP 2026s
+16 SEP 2026
+New day, focus on each second, minute, hour snd conquer the day.
+
+17 SEP 2026
 New day, focus on each second, minute, hour snd conquer the day.
