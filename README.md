@@ -36,3 +36,8 @@ New day, focus on each second, minute, hour snd conquer the day.
 
 18 SEP 2026
 New day, focus on each second, minute, hour snd conquer the day.
+
+21 SEP 2026
+New week, lets goo!
+Seconds, Minutes, Day.
+That's all I need to focus on.
